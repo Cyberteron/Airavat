@@ -76,5 +76,5 @@ Tutorial Videos
 https://youtu.be/an2BALW73j4 (SPHANTER)
 https://youtu.be/atSX_YDniyM (Mr.Ethical YT)
 ❤️Supporters❤️
-Stargazers repo roster for @th30neand0nly/AIRAVAT
+Stargazers repo roster for @cyberteron/AIRAVAT
 
